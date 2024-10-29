@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ADITTYA-crate
 - 👀 I’m interested in github
 - 🌱 I’m currently learning phyton 
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m not looking to collaborate 
 - 📫 How to reach me honeybearrr099@gmail.com 
 - 😄 Pronouns: human
 - ⚡ Fun fact: sleep 
